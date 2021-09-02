@@ -1,0 +1,1 @@
+# gatotsuparto.github.io
